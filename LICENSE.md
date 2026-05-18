@@ -1,4 +1,4 @@
-# 
+# advanced bot sniper NFT addons é o melhor bot sniper NFT addons com análise de metadados e take-profit. Seguro, confiável e otimizado para estratégias de sniper, negociação e
 
 
 
